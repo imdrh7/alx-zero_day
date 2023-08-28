@@ -1,1 +1,1 @@
-My frst readme updated
+MAnutd na bastard
